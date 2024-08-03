@@ -1,4 +1,3 @@
 - 👋 Hi, I’m KristiyanGenchev
 - 👀 I’m interested in cars, fitness, Crypto and basically everything :D.
-- 🌱 I’m currently learning JS, HTML and CSS, alongside with Cybersecurity.
 - 📫 How to reach me: write me on IG(kristiqngenchev), Gmail (genchevkristiyan@gmail.com), and here ( if DMs here exist).
